@@ -1,1 +1,1 @@
-Click on the following link to see the portfolio. Let me know if you have any further suggestions: https://suresh-pathlavath.github.io/portfolio/ This portfolio, crafted from the ground up, highlights my work as an analyst(product/business).
+Click on the following link to see the portfolio. Let me know if you have any further suggestions: https://phaneendhra-seetha.github.io/Portfolio/ This portfolio, crafted from the ground up, highlights my work as an analyst(product/business).
